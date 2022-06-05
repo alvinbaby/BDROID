@@ -70,7 +70,7 @@ Android 5 to Android 10. Working Without Any Error.
 ## Follow Me
 
 * Youtube : [Subscribe Now](https://bit.ly/3pSnvho)
-* Website : [Visit Now]()
+* Website : [Visit Now](https://jinnalvin.wordpress.com)
 * Page : [Follow Us](https://www.facebook.com/jinn)
 * Telegram : [Join Now](https://t.me/MrJinnTelegram)
 * Instagram : [Follow Me](https://www.instagram.com/mr__alvin_07)
