@@ -67,9 +67,6 @@ Android 5 to Android 10. Working Without Any Error.
 
  https://user-images.githubusercontent.com/64999484/160759767-8ece8b43-6aee-40cf-8698-73922d248bf0.mp4
 
-## [!["Buy Me A Coffee"](https://www.buymeacoffee.com/assets/img/custom_images/orange_img.png)](https://www.buymeacoffee.com/botolbaba)
-* BTC : 17CdkUHrPzoWg3B2TX8Nm7YkYZX7wreFQw
-
 ## Follow Me
 
 * Youtube : [Subscribe Now](https://bit.ly/3pSnvho)
