@@ -72,13 +72,12 @@ Android 5 to Android 10. Working Without Any Error.
 
 ## Follow Me
 
-* Youtube : [Subscribe Now](https://www.youtube.com/MasterTrick1)
-* Website : [Visit Now](https://linktr.ee/botolbaba)
-* Page : [Follow Us](https://www.facebook.com/TeamVVirus)
-* Group : [Join Us](https://www.facebook.com/groups/231747098048450)
-* Telegram : [Join Now](https://t.me/mastertrick2)
-* Instagram : [Follow Me](https://www.instagram.com/MehtanOfficial)
-* Twitter : [Follow Me](https://www.twitter.com/botolbaba)
+* Youtube : [Subscribe Now](https://bit.ly/3pSnvho)
+* Website : [Visit Now]()
+* Page : [Follow Us](https://www.facebook.com/jinn)
+* Telegram : [Join Now](https://t.me/MrJinnTelegram)
+* Instagram : [Follow Me](https://www.instagram.com/mr__alvin_07)
+* Twitter : [Follow Me](https://www.twitter.com/)
 
 ## ThanksTo
 ```
